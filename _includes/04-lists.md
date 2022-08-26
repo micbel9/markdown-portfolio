@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. :smile:
+2. The beach
+3. :ice skate:
